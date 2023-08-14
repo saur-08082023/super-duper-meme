@@ -1,0 +1,1 @@
+readme2 -> 14/08/2023 aggiornato
